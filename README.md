@@ -40,7 +40,7 @@ Amazonで序盤を試し読みする→ <a href="https://amzn.to/2GgQCox">わか
 
 初心者系でTech系なVtuberとして、わかばちゃんが動画でいろいろな技術に挑戦していきます！
 [チャンネル登録](https://www.youtube.com/channel/UCky-Q8NPjoohScbfrKU6AWA)しておくと、新着動画をYouTubeアカウントで受け取れます。
-YouTubeでも、わかばちゃんたちをよろしくね！
+YouTubeでも、わかばちゃんたちをよろしくね！!
 
 ### LINEスタンプ配信中！
 [わかばちゃんたちの公式LINEスタンプが配信中！](https://store.line.me/stickershop/product/5400742/ja)
